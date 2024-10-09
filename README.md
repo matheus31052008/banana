@@ -1,4 +1,3 @@
-# Minions
 
 ## Sobre Mim 
 
